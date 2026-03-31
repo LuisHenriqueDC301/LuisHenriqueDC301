@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐Atualmente estou trabalhando na Emater-MG
+⭐Atualmente estou trabalhando na Hotmart
 
 
 ## 🌐 Socials:
